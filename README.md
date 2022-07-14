@@ -1,0 +1,2 @@
+# usogeral
+para uso geral
